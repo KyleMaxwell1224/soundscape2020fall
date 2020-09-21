@@ -19,3 +19,5 @@ Keshika Gopinathan provided voicing as well.
 “robot_letsrock-By-shot846.Wav by Shot846.” Freesound, freesound.org/people/Shot846/sounds/131006/. 
 
 2014, www.youtube.com/watch?v=is-97a_MtSQ. Accessed 14 Sept. 2020. 
+
+“Cash Register by Kiddpark.” Freesound, freesound.org/people/kiddpark/sounds/201159/. 
